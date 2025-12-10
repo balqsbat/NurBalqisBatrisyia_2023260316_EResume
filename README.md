@@ -1,0 +1,1 @@
+# NurBalqisBatrisyia_2023260316_EResume
